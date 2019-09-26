@@ -1,0 +1,1 @@
+# Pboif2-10118054-Latihan6-KambingStatic-Konstanta
